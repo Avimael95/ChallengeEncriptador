@@ -1,1 +1,0 @@
-alert()[D[C;[D[D[D[C""[D[C[)[D[DHola como estas[B[A)[D"[3~[3~[3~[3~[3~
